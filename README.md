@@ -1,0 +1,1 @@
+# school73-idea.github.io
